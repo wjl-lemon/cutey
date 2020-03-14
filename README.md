@@ -1,2 +1,3 @@
-# cutey
- test github
+see someone 不是看见某人，而是谈恋爱
+
+努力发现生活中的糖分，抚慰人生！
